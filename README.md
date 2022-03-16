@@ -1,3 +1,2 @@
-# Learning
-Coursework / Testing 
-
+Still getting the hang of all this...
+Will be with you in a minute.
